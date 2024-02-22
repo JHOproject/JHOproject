@@ -16,4 +16,4 @@ Here's a bit about what makes me tick:
 *❤️‍🔥 I'm a firm believer in the magic of collaboration. Whether it's brainstorming with teammates or diving into open source projects, I thrive in environments where ideas are shared freely.*
 
 
-**When I'm not coding up a storm, you can find me exploring the great movies, or lost in a good book. Let's connect and build something amazing together! 🚀**
+When I'm not coding up a storm, you can find me exploring the great movies, or lost in a good book. Let's connect and build something amazing together! 🚀
