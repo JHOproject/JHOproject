@@ -1,1 +1,1 @@
-### Hi, there! It's me, Jessie 👋
+### Hi, there! I'm Jessie 👋
